@@ -1,5 +1,4 @@
 Wassallni PRIVACY POLICY
-
 Last Updated: October 17, 2023
 We understand that our users care about how their personal information is used and shared. On our way to Inspire Every Corner of the World Through Technology, we work hard to protect your information and take your privacy seriously.
 By using our Services, you are agreeing to this Privacy Policy. Please read it carefully.
